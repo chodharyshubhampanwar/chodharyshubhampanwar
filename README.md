@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shubham
 - 👀 I’m interested in Blockchain and AI.
 - 🌱 I’m currently learning Python.
-- 💞️ I’m looking to collaborate on Education projects.
+- 💞️ I’m looking to collaborate on Educational, Sustainability projects.
 - 📫 Connect - shubhamcpanwar@outlook.com.
