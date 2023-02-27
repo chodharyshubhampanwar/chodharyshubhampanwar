@@ -2,4 +2,4 @@
 - 👀 I’m interested in Blockchain and AI.
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on Educational, Sustainability projects.
-- 📫 Connect - work@shubhamcpanwar.com.
+- 📫 Connect - shu8hampanwar@outlook.com.
